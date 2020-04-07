@@ -3,29 +3,23 @@
 
 ### AmEx
 I'm an American.
-
 I want you to feel my Excellence.
 
 
 This body feels alien.
-
 Pump me full of estrogen.
 
 
 I caught your hand in the honeypot.
-
 I caught your hand in the cookie jar.
 
 
 I want you to grab my pussy raw.
-
 I want you to fuck me raw.
 
 
 Let in the caravan!
-
 I'm on PrEP!
-
 
 American Exceptionalism.
 
