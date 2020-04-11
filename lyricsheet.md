@@ -81,8 +81,8 @@ We wanna be liberated.
 Don't tell me to get off your rocks;\
 Cruise, jack you off: we made this.
 
-Hog-tie my naked body.\
-Hog-tie my naked body, baby.
+Hogtie my naked body.\
+Hogtie my naked body, baby.
 
 Carry me off the beach.
 
