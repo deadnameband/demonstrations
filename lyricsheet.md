@@ -151,3 +151,9 @@ Falling down, down, down.\
 & I’m falling down, down, down.
 
 & I’m falling down.
+
+### Link
+
+These lyrics can be found at <git.io/demonstrationslyrics>, or <https://github.com/deadnameband/demonstrations/blob/master/lyricsheet.md>
+
+The album demonstrations is available on bandcamp.
