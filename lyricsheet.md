@@ -156,4 +156,4 @@ Falling down, down, down.\
 
 These lyrics can be found at <https://git.io/demonstrationslyrics>, or <https://github.com/deadnameband/demonstrations/blob/master/lyricsheet.md>
 
-The album demonstrations is available on bandcamp.
+The EP Demonstrations is available on bandcamp at <https://deadnameband.bandcamp.com/>.
